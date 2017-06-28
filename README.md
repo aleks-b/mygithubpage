@@ -1,1 +1,1 @@
-Neusu ExtraStarke Seitenwände, Deckel und Boden mit 3 mm - 50 cm X 40 cm X 30 cm (60 Liter Fassungsvermögen) - Perfekt Für Jeden Raum (Kinderzimmer, Schlafzimmer, Wohnzimmer), Griff verstärkt mit Metall-Nieten, die für lange Gebrauchsdauer sorgen Aufzubewahren
+50 x 40 x 30 cm große, faltbare Box; dreifach verstärkte Premium-Aufbewahrungsbox.
